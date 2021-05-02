@@ -8,10 +8,10 @@ See my repositories👉: https://github.com/LGLTeam?tab=repositories
 
 See my gists👉:https://gist.github.com/LGLTeam
 
-As of March 2021: We began to share all sources of Free Fire and PUBG that we got from someone and anywhere to stop beggers, and shared project we've been kept secret 🤣. Don't ask if you don't know how to use, ask on any forum sites or [UnknownCheats](https://www.unknowncheats.me/forum/index.php) instead 😅😅
+As of March 2021: We began to share all sources of Free Fire and PUBG that we got from someone and anywhere to stop beggers, and shared project we've been kept secret 🤣. Please ask on [UnknownCheats](https://www.unknowncheats.me/forum/index.php) if you need help with it, not us 😅😅
 
 ### Contact
-Only way to find is to go to my mod menu repo and read FAQ. Please only inquiries about my mod menu. Don't ask how to use other projects than my mod menu project, don't ask about tencent games, you will be ignored.
+Only way to find is to go to my mod menu repo and read FAQ. Please only inquiries about my mod menu. Don't ask how to use other projects than my mod menu project, don't ask about any tencent games, you will be ignored.
 
 There is no way to contact to my brothers since they want to remain private
 
